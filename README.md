@@ -1,1 +1,1 @@
-# magistratura
+# maga
